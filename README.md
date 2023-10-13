@@ -1,3 +1,3 @@
 # NavegacionEjemplos
-[![Whats-App-Image-2023-10-12-at-10-32-26-PM.jpg](https://i.postimg.cc/jS4WKr6r/Whats-App-Image-2023-10-12-at-10-32-26-PM.jpg)](https://postimg.cc/4Yn4bqF8)
-[![Whats-App-Image-2023-10-12-at-10-31-51-PM.jpg](https://i.postimg.cc/YCDHQnMW/Whats-App-Image-2023-10-12-at-10-31-51-PM.jpg)](https://postimg.cc/87v9SbFp)
+[![Whats-App-Image-2023-10-12-at-11-34-57-PM.jpg](https://i.postimg.cc/QdjWPtL3/Whats-App-Image-2023-10-12-at-11-34-57-PM.jpg)](https://postimg.cc/jLk5nRdg)
+[![Whats-App-Image-2023-10-12-at-11-34-58-PM.jpg](https://i.postimg.cc/d1Z7dZC8/Whats-App-Image-2023-10-12-at-11-34-58-PM.jpg)](https://postimg.cc/9RVFHMJM)
